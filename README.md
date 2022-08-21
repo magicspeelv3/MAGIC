@@ -1,6 +1,6 @@
-## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=FF00FF&lines=𝚆𝙴𝙻𝙲𝙾𝙼𝙴+𝚃𝙾+𝚀𝚄𝙴𝙴𝙽+𝙴𝙻𝙸𝚂𝙰+𝚆𝙰+𝙱𝙾𝚃+𝚁𝙴𝙿𝙾.;𝙲𝚁𝙴𝙰𝚃𝙴𝙳+𝙱𝚈+𝙳𝙰𝚁𝙺+𝙼𝙰𝙺𝙴𝚁+𝙾𝙵𝙲;𝚃𝙷𝙸𝚂+𝙸𝚂+𝙰+𝚂𝙸𝙼𝙿𝙻𝙴+𝙱𝙾𝚃;𝙰𝙽𝙳+𝙸𝙽𝙲𝙻𝚄𝙳𝙴+𝙼𝙾𝚁𝙴+𝙵𝙴𝙰𝚃𝚄𝚁𝙴𝚂;𝘛𝘏𝘈𝘕𝘒𝘚+𝘍𝙾𝚁+𝘝𝘐𝘚𝘐𝘛𝘐𝘕𝘎+𝘔𝘠+𝘎𝘐𝘛)](https://git.io/typing-svg)
+## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=FF00FF&lines=𝚆𝙴𝙻𝙲𝙾𝙼𝙴+𝚃𝙾+𝙼𝙰𝙶𝙸𝙲+𝚂𝙿𝙴𝙴𝙻+𝚆𝙰+𝙱𝙾𝚃+𝚂𝚀𝚄𝙰𝙳.;𝙲𝚁𝙴𝙰𝚃𝙴𝙳+𝙱𝚈+𝙼𝙰𝙶𝙸𝙲+𝚂𝙿𝙴𝙴𝙻+𝙾𝙵𝙲;𝚃𝙷𝙸𝚂+𝙸𝚂+𝙰+𝙳𝙰𝙽𝙶𝙴𝚁𝚂+𝚂𝚀𝚄𝙳;𝙰𝙽𝙳+𝙸𝙽𝙲𝙻𝚄𝙳𝙴+𝙼𝙾𝚁𝙴+𝙵𝙸𝙶𝙷𝚃𝙴𝚁𝚂;𝘛𝘏𝘈𝘕𝘒𝘚+𝘍𝙾𝚁+𝘝𝘐𝘚𝘐𝘛𝘐𝘕𝘎+𝘔𝘠+𝘎𝘐𝘛)](https://git.io/typing-svg)
+![logo](https://i.ibb.co/H21YJTk/Elisa.jpg)
 
- ![logo](https://i.ibb.co/H21YJTk/Elisa.jpg)
   
 # 📵 𝙼𝙰𝙶𝙸𝙲 𝚂𝙿𝙴𝙴𝙻 📵
 <div align="center">
